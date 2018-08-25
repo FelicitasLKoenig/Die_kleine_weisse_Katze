@@ -10,3 +10,5 @@ Wie sie auch miaute und rief, die Maus war weg.
 Da kam Die Maus wieder zum Vorschein und streckte der kleinen, weissen Katze die Zunge raus.
 Plötzlich wurde die kleine Katze wütend. Und wie sie wütend wurde!
 So wütend, das sie die Maus blitzschnell packte.
+
+Wie von Zauberhand war die Maus nicht mehr vorlaut, sondern ängstlich.
