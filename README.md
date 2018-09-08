@@ -12,3 +12,5 @@ Plötzlich wurde die kleine Katze wütend. Und wie sie wütend wurde!
 So wütend, das sie die Maus blitzschnell packte.
 
 Wie von Zauberhand war die Maus nicht mehr vorlaut, sondern ängstlich.
+Die kleine,weisse Katze war sehr erstaunt über sich selbst. Sie hatte es Geschaft!Zum ersten mal hatte sie es Geschaft,
+eine Maus zu fangen!
