@@ -14,3 +14,20 @@ So wütend, das sie die Maus blitzschnell packte.
 Wie von Zauberhand war die Maus nicht mehr vorlaut, sondern ängstlich.
 Die kleine, weisse Katze war sehr erstaunt über sich selbst. Sie hatte es geschafft! Zum ersten mal hatte sie es geschafft,
 eine Maus zu fangen!
+                                                                                                                                                                  
+Die Maus sagte verschwörerisch: Wenn du mich freiläst, zeige ich dir einen Thron. Wenn du dich auf den Thron setzt, kanst du dir alles Wünschen.                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                                  
+                                                                                                                                                             
